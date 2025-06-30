@@ -1,3 +1,2 @@
-# Candle-
- 
-🌞Welcome to faticandle.lb, 🌄where every candle 🕯️is lovingly handmade to brighten your world.🎇 Our candles are crafted from natural ingredients and infused with delightful scents that create a cosy, calming atmosphere in any space. 🎆Perfect for relaxing evenings, thoughtful gifts🎁, or adding a touch of charm to your home. Light one up and feel the warmth of handmade care.🌹🌹
+#candle...
+🌞Welcome to "#faticandle.lb "— where each handmade candle🕯️ brings warmth, elegance🌄, and scent to life. Made from natural ingredients and rich fragrances🎇, our candles🕯️ are perfect for homes, hotels, spas, weddings, baby showers, or as heartfelt gifts🎁. Light a flame, feel the magic🌹🌹
